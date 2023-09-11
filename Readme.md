@@ -1,1 +1,1 @@
-## Eduardo Medrano - (Lider del Equipo)
+## Eduardo Medrano - (Lider del Equipo) :sunglasses:
