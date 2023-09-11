@@ -1,2 +1,4 @@
-## Eduardo Medrano - (Lider del Equipo) :sunglasses:
-## Aura Marina Pasmin -  🎨
+
+**Aura Marina Pasmin** -  🎨
+## Ecuador
+Vivo en Colombia :colombia:
