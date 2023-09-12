@@ -1,5 +1,3 @@
-## Eduardo Medrano - (Lider del Equipo)
+## Eduardo Medrano - (Lider del Equipo) :sunglasses:
 ## Nicolás Ledesma - (colaborador)
-## Eduardo Medrano - (Lider del Equipo) :sunglasses:
-## Eduardo Medrano - (Lider del Equipo) :sunglasses:
 ## Aura Marina Pasmin -  🎨
